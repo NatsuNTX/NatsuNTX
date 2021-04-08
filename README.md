@@ -1,6 +1,6 @@
 ### Hello and Welcome to My Github Page (^o^)
 
-![Me When I Don't Know what i'm goona do](https://tenor.com/view/no-sleep-anime-stare-huddled-gif-11042053)
+![Me When I Don't Know what i'm goona do](https://media1.tenor.com/images/2118209d445e17b16ee77a2d81b5ed70/tenor.gif?itemid=11042053)
 
 **A Little Bit About Me:**<br>
 *Hi!...,My Name is Diartana "Diar for Short or just call me Natsu".<br>
