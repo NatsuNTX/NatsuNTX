@@ -3,7 +3,7 @@
 ![Me When I Don't Know what i'm goona do](https://media1.tenor.com/images/2118209d445e17b16ee77a2d81b5ed70/tenor.gif?itemid=11042053)
 
 **A Little Bit About Me:**<br>
-*Hi!...,My Name is Diartana "Diar for Short or just call me Natsu".<br>
+*Hi!...,My Name is D****** "D*** for Short or just call me Natsu".<br>
 I Live in Indonesia, and I'm 16 y.o High School Student~.<br>
 I'm Start Write a Code when I was In Junior School (but not very active. :/) Until this Pandemic Comes in and everyone stuck at home including me （ つ﹏╰ ).<br>
 and the first code I write is .bat script!, (Yeah...~ I Write A LOT bat Script Back than :/ )<br>
