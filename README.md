@@ -14,5 +14,5 @@ If so...., Nice To Meet You! (^.^)***
 
 ## Friends?
 ***Although I'm a shy Person but You can Add me as a Friend if you want to<br>***
-**Discord:Natsu#4455<br>
+**Discord:SASR-2K57#4455<br>
 Twitter:[@NTXKIANA](https://twitter.com/NTXKIANA) (Not Very Active)**
