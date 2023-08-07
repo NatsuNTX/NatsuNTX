@@ -14,7 +14,7 @@ If so...., Nice To Meet You! (^.^)***
 
 ## Friends?
 ***Although I'm a shy Person but You can Add me as a Friend if you want to<br>***
-**Discord:SASR-2K57#4455<br>
+**Discord:[NatsuX(nextgenx.)](https://discordid.netlify.app/?id=342969312144916481)<br>
 Twitter:[@NTXKIANA](https://twitter.com/NTXKIANA) (Not Very Active)**
 <div>
     <img height="185px" src="https://github-readme-stats.vercel.app/api?username=NatsuNTX&show_icons=true">
