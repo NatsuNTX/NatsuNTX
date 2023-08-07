@@ -7,7 +7,7 @@
 I Live in Indonesia, and I'm 16 y.o High School Student~ (currently I am a college student now and not 16).<br>
 I'm Start Write a Code when I was In Junior School (but not very active. :/) Until this Pandemic Came in and everyone got stuck at home including me （ つ﹏╰ ).<br>
 and the first code I write is .bat script!, (Yeah...~ I Write A LOT bat Script Back than :/ )<br>
-~~Currently I'm Writing code using Javascript and Some other Language Like Python and I'm Stil Learning some other Programming Language including My English (Yeah... I know My Grammar is Still Broken, Sorry for That ( ݓ_ݓ ) )*~~~, as long as the instruction is clear to understand, the languages is not a major problem for me :)<br>
+~~Currently I'm Writing code using Javascript and Some other Language Like Python and I'm Stil Learning some other Programming Language including My English (Yeah... I know My Grammar is Still Broken, Sorry for That ( ݓ_ݓ ) )*~~, as long as the instruction is clear to understand, the languages is not a major problem for me :)<br>
 
 ***Oohhh...You've Already Read Until this text don't you?<br>
 If so...., Nice To Meet You! (^.^)***
